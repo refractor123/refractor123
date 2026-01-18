@@ -67,7 +67,7 @@ I enjoy working with structured data, asking the *right business questions*, and
 
 ## 📫 Connect With Me
 
-- LinkedIn: *(add your LinkedIn link here)*
+- LinkedIn: *www.linkedin.com/in/rohan-savani*
 - Email: rohansavani2001@gmail.com
 
 Thanks for stopping by! 🙂
